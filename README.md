@@ -1,4 +1,4 @@
-### Hi there 👋
+### ◆The important thing in life is to have a great aim, and the determination to attain it. 👋
 
 <!--
 **soloXXn/soloXXn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
